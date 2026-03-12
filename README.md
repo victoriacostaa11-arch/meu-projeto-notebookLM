@@ -44,3 +44,6 @@ Conheça seu perfil: Antes de investir, identifique se você é um investidor co
 .
 *Além dessas dicas, o autor Enrico Fróes Rodrigues destaca a importância de o profissional buscar entender além de sua função e ter "sentimento de dono", pois a dedicação na carreira também se reflete em melhores resultados financeiros pessoais
 .
+https://www.youtube.com/watch?v=D-ICfRxJ6LA&list=TLGGDc5ba-cgULYxMjAzMjAyNg
+https://www.bcb.gov.br/content/cidadaniafinanceira/documentos_cidadania/Cuidando_do_seu_dinheiro_Gestao_de_Financas_Pessoais/caderno_cidadania_financeira.pdf
+https://www.youtube.com/watch?list=TLGGlE3z3RsP8h8xMjAzMjAyNg&v=llzOggL1xUI
